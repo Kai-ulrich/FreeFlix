@@ -4,6 +4,6 @@ Went beast mode on this project to create an alternative to paid steaming platfo
 
 Special thanks to JPN. 
 
-You're welcome ya filthy animals <3!
+Keep you're change you filthy animals <3!
 
 #  ¯\\\_(ツ)\_/¯
